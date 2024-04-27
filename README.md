@@ -19,9 +19,9 @@
 | 商务套餐 | 200G | 18.8元 | 49元 | 96元 |  179元 |
 | 旗舰套餐 | 300G | 28元 | 77元 | 146元 |  278元 |
 
-**免费体验: https://gh.allblue.cloud**<br/>
-**免费体验: https://gh.allblue.cloud**<br/>
-**免费体验: https://gh.allblue.cloud**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
 
 注：如果全部节点不可用，请先检查客户端是否最新版本。<br/>
 如果不是最新版本，请前往 Allblue 官网下载最新版本。
@@ -33,7 +33,7 @@
 >🚀免费Clash订阅链接
 
 ```
-https://ablnk.absslk.xyz/0PAbsJt
+ https://w1.v2free.top/auth/register?code=UOZu
 ```
 
 
@@ -126,6 +126,6 @@ trojan://7cb2ffdb-7c3b-4cb4-83be-26274c6ec9a5@free.2weradf.xyz:36501?allowInsecu
 ***请不要用分享的免费Trojan节点进行大流量下载，否则肯定会影响大家的使用体验。***<br/>
 ***如果您对Trojan免费节点不够满意，那么我推荐您使用更极速稳定的付费Trojan节点购买。***<br/>
 
-**免费体验: https://gh.allblue.cloud**<br/>
-**免费体验: https://gh.allblue.cloud**<br/>
-**免费体验: https://gh.allblue.cloud**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
+**免费体验:  https://w1.v2free.top/auth/register?code=UOZu**<br/>
